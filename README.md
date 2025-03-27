@@ -4,4 +4,4 @@
 
 ㅤㅤㅤany/prns  isfj  🏵️  sixteen
 
-ㅤ⠀⠀ㅤ𐔌‧ 🦀ㅤlatino nonbinaryㅤ.𖥔 ݁ 
+ㅤ ⠀𐔌⠀ 🦀ㅤBR⠀ diagnosed audhd.𖥔 ݁ 
