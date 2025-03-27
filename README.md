@@ -2,4 +2,4 @@
 
 ㅤㅤㅤany/prns  isfj  ✚  sixteen
 
-ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤinfoㅤinfoㅤinfoㅤ♡
+ㅤㅤㅤ𐔌‧ 𝄞ㅤinfoㅤinfoㅤinfoㅤ♡
