@@ -1,4 +1,4 @@
-ㅤㅤㅤ꒰ㅤnaraㅤorㅤkel ౨ৎㅤ꒱
+⠀⠀ㅤㅤㅤ꒰ㅤnaraㅤorㅤkel ౨ৎㅤ꒱
 
 ㅤㅤㅤany/prns  isfj  ✚  sixteen
 
