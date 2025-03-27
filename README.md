@@ -2,6 +2,6 @@
 
 ⠀⠀ㅤㅤㅤ꒰ㅤnaraㅤorㅤkel  🍊ㅤ꒱
 
-ㅤㅤㅤany/prns  isfj  ✚  sixteen
+ㅤㅤㅤany/prns  isfj  🏵️  sixteen
 
-ㅤ⠀⠀ㅤ𐔌‧ 𝄞ㅤinfoㅤinfoㅤinfoㅤ🏵️
+ㅤ⠀⠀ㅤ𐔌‧ 🦀ㅤlatino nonbinaryㅤ.𖥔 ݁ 
