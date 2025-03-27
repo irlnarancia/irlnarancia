@@ -1,4 +1,4 @@
-![](https://www.tumblr.com/llocket/754205767749582848/kel-graphics?source=share)
+![](https://files.catbox.moe/y0zmws.gif)
 
 ⠀⠀ㅤㅤㅤ꒰ㅤnaraㅤorㅤkel ♫ㅤ꒱
 
