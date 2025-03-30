@@ -5,5 +5,6 @@
 
 ⠀⠀⠀ㅤ⠀⠀ㅤany/prns  isfj  🏵️  sixteen
 
-ㅤ⠀⠀⠀ ⠀⠀𐔌⠀ 🦀ㅤBR⠀ diagnosed audhd.𖥔 ݁ 
+ㅤ⠀⠀⠀ ⠀⠀𐔌⠀ 🦀ㅤBR⠀ diagnosed audhd.𖥔 ݁
+
 ![](https://64.media.tumblr.com/7583abea00998361548ce38ccd76f7cb/497c8ee6d20a0c74-6c/s500x750/c19baa205ba394c7ba8721b3533bbabde6b63bd4.gifv)
